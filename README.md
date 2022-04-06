@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Crestfall77
 - 👀 I’m interested in My family! Cloudramming? Ultra Running; Music 
-- 🌱 I’m currently learning a lot of stuff
+- 🌱 I’m currently learning how to work less
 - 💞️ I’m looking to collaborate on stuff
 - 📫 How to reach me ... knock on the door
 
